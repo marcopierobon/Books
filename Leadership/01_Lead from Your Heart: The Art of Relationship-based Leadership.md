@@ -4,7 +4,9 @@
 
 ### Introduction - Hearts together Inspire
 
+We've lost our ability to communicate in a meaningful way, even though we feel the meed for stronget and deeper connections.
 
+We want to find meaning in our lives and to fill fulfilled. Failing to accomplish this makes us ineffective leaders
 
 ### Chapter One - Relationships matter
 
@@ -18,8 +20,8 @@
 
 
 
-### Chapter Four - Stay
 
+### Chapter Four - Stay
 
 
 ### Chapter Five - The relationship stake
